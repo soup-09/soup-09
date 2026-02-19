@@ -1,4 +1,4 @@
-my [spotify :)](https://open.spotify.com/user/w5ncfnj3zumr21yv1vv2apnfo?si=42a8b288980f47a6)![1aee39ec](https://github.com/user-attachments/assets/31aee858-9fd4-490d-b525-57d6c3809709)
+my [spotify :)](https://open.spotify.com/user/w5ncfnj3zumr21yv1vv2apnfo?si=42a8b288980f47a6)
 
 
 
