@@ -1,4 +1,8 @@
 <p align="center"><strong>w</strong></p>
+<p align="center">
+  <a href="https://open.spotify.com/user/w5ncfnj3zumr21yv1vv2apnfo?si=42a8b288980f47a6">spotify</a>
+</p>
+
 
 ![tumblr_1a190c44492acc6f0cc7db014508aa1f_543d6486_100](https://github.com/user-attachments/assets/7c0db088-4dcc-4a49-9f3c-e3b599dd53c0)![d3nrb5b-9a2e6595-1b98-45be-9db7-82a4c9cc310d](https://github.com/user-attachments/assets/5aaf9ecb-95fa-4a32-b410-68c8107b5f6f)![tumblr-93999031b3c76e9c5b978faf6cc3f5b7-55e54bbf-100](https://github.com/user-attachments/assets/9f37400d-b7f2-4782-b532-f4849dfd2841)![tumblr_ed30d5dee104a47ad1ad7c3a2fe193b1_a1c8c8ab_100](https://github.com/user-attachments/assets/0fca00ec-48e7-4114-aac8-88e8b6dd3a5c)![tumblr_pwdz5uYWUq1xbgu08o3_100](https://github.com/user-attachments/assets/efa41686-be69-4a76-b9f6-3e2345ccefc5)![543163448-992eada8-b590-4ae1-a385-b61860794b9a](https://github.com/user-attachments/assets/db655d0e-a161-4e9e-a560-37e6eef7ad9f)![e55fef71_original](https://github.com/user-attachments/assets/56d7c558-ef08-46c5-9cfb-f0b36fe1dd78)![tumblr_pucbjd4nPL1xbgu08o1_100](https://github.com/user-attachments/assets/61d012f1-03a2-462f-93a8-7aa431c78a6a)
 
